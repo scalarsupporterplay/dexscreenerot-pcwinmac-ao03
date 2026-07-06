@@ -1,4 +1,4 @@
-# 
+# Exclusive dexscreener sniper bot workflow for Mac OS | Ultimate dexscreener sniper bot workflow for PC Windows. Featuring historical data analysis and rate limiting — optimized for maximum performance on every platform.
 
 
 
